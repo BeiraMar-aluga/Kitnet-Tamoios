@@ -1,2 +1,2 @@
 # Kitnet-Tamoios
-Alugar Kitnet na Beira-Mar no Tamoios, Cabor Frio
+Alugar Kitnet na Beira-Mar no Tamoios, Cabo Frio
